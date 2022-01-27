@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AlixSalomon
+- 👀 I’m interested in sustainability
+- 💞️ I’m looking to collaborate on product impact measurement
